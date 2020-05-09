@@ -1,4 +1,4 @@
-# The_Ozogs_Story
+# The Ozog's Story
 
 My Grandad was born and raised in Poland, and grew up during the Nazi occupation of Poland from 1939-1945. He wrote a short novel about his experience and the family, which was only discovered on his computer when he passed away in 2012.
 
